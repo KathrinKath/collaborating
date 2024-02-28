@@ -2,7 +2,7 @@
 - Kathrin Peled
 - 34 years old
 - From Berlin
-
+-A lovely human being
 ## My favouratie dish - recipe:
 - 1 tbsp olive oil
 - 2 red onions, chopped
